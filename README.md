@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gabiaguilerav - Gabriela
+- 👋 Hi, I’m @gabiaguilerav (Gabriela Aguilera)
 - 👀 I’m interested in web design, yoga and drinking matcha 🍵 
 - 🌱 I’m currently learning coding and the dutch language 🇳🇱 
 - 💞️ I’m looking to collaborate on cool web design projects
